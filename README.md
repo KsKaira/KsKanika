@@ -1,8 +1,8 @@
-### ✨🧚‍♀️ KAIRA 🧚‍♀✨
+### ✨🧚‍♀️ KANIKA 🧚‍♀✨
 
 **`Web Designer & Developer`**
 
-Greetings! I'm a web designer and developer, channeling my passion for pixels into vibrant online experiences. From coding to crafting, I'm all about making the web a captivating and functional space. Let's team up to turn bugs into breakthroughs and lines of code into digital art! With a keen eye for aesthetics and a love for problem-solving, I'm on a mission to create web experiences that marry form and function seamlessly. Join me in this exciting journey of turning ideas into interactive realities by subscribing to my Youtube channel "[kskaira]()"!  🎨💻🚀
+Greetings! I'm a web designer and developer, channeling my passion for pixels into vibrant online experiences. From coding to crafting, I'm all about making the web a captivating and functional space. Let's team up to turn bugs into breakthroughs and lines of code into digital art! With a keen eye for aesthetics and a love for problem-solving, I'm on a mission to create web experiences that marry form and function seamlessly. Join me in this exciting journey of turning ideas into interactive realities by subscribing to my Youtube channel "[kskanika]()"!  🎨💻🚀
 
 <p align="left">
   <a href= "https://www.youtube.com/channel/UCOCOYTPitA8qlYJ1REbRoX">
